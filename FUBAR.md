@@ -8,9 +8,12 @@ This is BETTER stuff.
 Bob has all the best ideas.
 
 changed this. 
-Changed this again.
+Changed this agaguruBob
 
 
 Bob, I need beer, lots of beer for me and my friends. Gwen, Guru, Andrew and Jason
 
 Carol is doing drugs. Give her a beer.
+
+Carol is doing drugs. Give her a beer.
+Beer is for light beer drinkers.  Give Carol hard booze master
