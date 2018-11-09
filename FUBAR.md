@@ -10,3 +10,4 @@ Bob has all the best ideas.
 changed this. 
 Changed this again.
 Carol is doing drugs. Give her a beer.
+Beer is for light beer drinkers.  Give Carol hard booze.
